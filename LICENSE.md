@@ -1,4 +1,4 @@
-
+Free new catch a monster Scripts | auto-catch + inf-balls brings you the best free scripts for catch a monster, featuring auto-catch and inf-balls. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
